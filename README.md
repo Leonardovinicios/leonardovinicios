@@ -9,3 +9,4 @@ meu nome é leonardo vinicios da mota freitas
 ### entre em contato comigo📫
 
 - leonardomotafreitas1@gmail.com
+![](https://media1.tenor.com/m/xCkCA1qN2AMAAAAC/kiss-trophy-neymar-jr.gif)
